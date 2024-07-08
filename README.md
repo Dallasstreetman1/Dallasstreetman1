@@ -6,7 +6,7 @@
 - 😄 Pronouns: ... WE    US       OUR
 - ⚡ Fun fact: ... I just grew up. Now in A Man. So now IAM!
 - I finally accepted female dominance and the abandonment of family.
-- 
+- Lets code our way out. Watch every string. Make sure you mean what you say.
 
 <!---
 Dallasstreetman1/Dallasstreetman1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
